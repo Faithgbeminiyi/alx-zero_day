@@ -1,2 +1,1 @@
-great things are happening to me
-and mine
+I have entered the best season of my life
